@@ -1,3 +1,3 @@
 # Terms
 Terms and Conditions Legal
-Coming Soon - Cryptocurrency COINsolidation lauch February, 28 2021.
+Coming Soon - Cryptocurrency COINsolidation lauch April, 30 2021.
